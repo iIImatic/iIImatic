@@ -1,1 +1,1 @@
-![shit](https://i.imgur.com/sz7cBg7.gif)
+i do not nor will i ever listen to indie rock or cream myself over karkat fucking vantas
