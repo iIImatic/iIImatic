@@ -1,1 +1,1 @@
-![hey](https://i.imgur.com/EawXNxP.gif)
+![hey](https://i.imgur.com/nnxfeLW.png)
